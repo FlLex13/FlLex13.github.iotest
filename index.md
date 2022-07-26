@@ -7,3 +7,5 @@ Gandalf der Graue (später: der Weiße), auch Gandalf Graurock, Mithrandir (Sind
 * klug
 * zauberhaft
 * Sarumans Endgegner
+
+> Närrischer Tuk
