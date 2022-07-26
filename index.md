@@ -9,3 +9,5 @@ Gandalf der Graue (später: der Weiße), auch Gandalf Graurock, Mithrandir (Sind
 * Sarumans Endgegner
 
 > Närrischer Tuk
+
+<img src="https://www.mythos-web.de/wp-content/uploads/2012/04/Gandalf_Ein_Zauberer_kommt_nie_zu_spaet.jpg"/>
